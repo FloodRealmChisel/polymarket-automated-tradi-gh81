@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with smart Polymarket Utility | sentiment-analysis + decentralized-trading, the #1 utility. Includes sentiment-analysis and decentralized-trading
 
 
 
